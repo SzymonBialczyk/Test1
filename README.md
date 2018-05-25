@@ -1,2 +1,2 @@
 # Test1
-Projekt testowy
+Projekt testowy, a teraz cos sobie dodam LUL 
